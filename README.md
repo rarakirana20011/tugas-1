@@ -10,8 +10,11 @@ I Gusti Lanang Putra Eka Prismana, S.Kom., M.Kom
 
 Disusun oleh : (Kelompok 8)
 Rara Kirana Aisyah Anwar ( 20050974011 )
+
 Choirudin Asyari ( 20050974065 )
+
 Fauzi Setiawan ( 20050974073 )
+
 M. Iqbal Haqiqi ( 20050974075 )
 
 Pendidikan Teknologi Informasi 2020A
